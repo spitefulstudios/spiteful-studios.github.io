@@ -1,1 +1,1 @@
-# spiteful-studios.github.io
+# spitefulstudios.github.io
